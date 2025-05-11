@@ -1,1 +1,1 @@
-فایل مربوزط به www.deltagame.com
+فایل مربوزط به  deltabazi.ir 
