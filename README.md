@@ -1,1 +1,1 @@
-# emfey-hub.github.io
+فایل مربوزط به www.deltagame.com
