@@ -1,1 +1,1 @@
-فایل مربوزط به  deltabazi.ir 
+فایل مربوزط به  www.deltabazi.ir 
